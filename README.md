@@ -1,0 +1,19 @@
+![Screenshot_20241008-171342_Samsung Internet](https://github.com/user-attachments/assets/46c7d4e0-3bbd-4ddf-9b7d-8608e072883a)
+- 👋 Hi, 1000![Screenshot_20241008-171045_Samsung Internet](https://github.com/user-attachments/assets/6c285bca-c35d-43a9-a2d2-834404d795f9)
+![Screenshot_20241008-170640_Samsung Internet](https://github.com/user-attachments/assets/58d520d3-655e-4129-96cb-a082152b4f69)
+
+
+https://github.com/user-attachments/assets/9aac5663-cb2a-48ac-96ce-1f4940b1fa7e
+
+0p0I’m @128217818787235567701
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
+
+<!---
+128217818787235567701/128217818787235567701 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
